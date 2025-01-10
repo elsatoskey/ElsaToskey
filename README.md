@@ -4,8 +4,6 @@
 - 📫 How to reach me: elsa.toskey@noaa.gov
 - 🌱 Pronouns: they/them
 
-**Let’s connect if you’re interested in collaborative science!**
-
 <!--
 
 
