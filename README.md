@@ -1,8 +1,8 @@
-## Welcome! 🌊
+## 𓆝 𓆟 𓆞 Hello and welcome! 𓆝 𓆟 𓆞
 
-I am an ecologist with a huge heart for rivers, insects, and conservation
+I am an ecologist with a huge heart for rivers, insects, fish, conservation, and open science.
 
-I currently work as a fisheries research scientist focused on food web-based, data-driven solutions for conserving salmon and steelhead. 
+I currently work as a fisheries research scientist focused on food-web-based, data-driven solutions for conserving salmon and steelhead. 
 
 🌱 Pronouns: they/them
 
