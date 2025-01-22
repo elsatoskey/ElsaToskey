@@ -1,4 +1,4 @@
-## 𓆝 𓆟 𓆞 Hello and welcome! 𓆝 𓆟 𓆞
+## 𓆝 𓆟 𓆞 Hello and welcome! *٭  𓆣 𖢥 𓆣٭ *
 
 I am an ecologist with a huge heart for rivers, insects, fish, conservation, and open science.
 
