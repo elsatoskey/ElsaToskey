@@ -3,8 +3,8 @@
 I am an ecologist with a huge heart for rivers, insects, fish, conservation, and open science.
 
 I currently work as a fisheries research scientist focused on food-web-based, data-driven solutions for conserving salmon and steelhead. 
-
-Pronouns: they/them
+ 
+Pr0n0uns: t h e y / t h e m
 
 
 <a href="mailto:elsa.toskey@noaa.gov"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" height="25" alt="Email" /></a>&nbsp;
